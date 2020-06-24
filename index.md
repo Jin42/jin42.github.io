@@ -15,3 +15,5 @@ Hierzu scheut sie auch nicht vor Daemonenpakten und der Diablerie zurueck.
 * ignores that she does not like
 
 > Uh, we have the whole night to us, let us have some fun.
+
+<img src="https://cdnb.artstation.com/p/assets/images/images/014/237/815/large/nuxcia-art-morgana-lasombraweb.jpg?1543138081"/>
