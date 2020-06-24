@@ -13,3 +13,5 @@ Hierzu scheut sie auch nicht vor Daemonenpakten und der Diablerie zurueck.
 * kills for fun
 * destroys cities over one small issue
 * ignores that she does not like
+
+> Uh, we have the whole night to us, let us have some fun.
